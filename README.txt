@@ -1,0 +1,1 @@
+Thanks for visiting my personal website's repository. Feel free to visit the website for any inquiries.
